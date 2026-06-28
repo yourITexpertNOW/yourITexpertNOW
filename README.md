@@ -2,7 +2,7 @@
 
 **IT Support Specialist transitioning into Cybersecurity | SOC Analyst in training**
 
-Based in Dartford, Kent, UK. Ten years of hands-on IT experience — six of those running my own managed services operation — now focused on building a career in security operations.
+Based in Dartford, Kent, UK. Ten years of hands-on IT experience, six of those running my own managed services operation, now focused on building a career in security operations.
 
 ---
 
